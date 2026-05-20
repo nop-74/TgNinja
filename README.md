@@ -20,3 +20,6 @@
 - Информация о различных планах и их особенностях. Выберите оптимальный тариф для вашего бизнеса.
 
 ![Alt text](https://github.com/nop-74/TgNinja/blob/main/ALL.png)
+<!-- Start of banner code -->
+<a href="https://tgninja.com?p=8121"><img src="https://github.com/nop-74/TgNinja/blob/main/КНОПКА%201.png?raw=true" title="скачать" /></a>
+<!-- End of banner code -->   
