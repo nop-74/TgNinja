@@ -23,3 +23,12 @@
 <!-- Start of banner code -->
 <a href="https://tgninja.com?p=8121"><img src="https://github.com/nop-74/TgNinja/blob/main/КНОПКА%201.png?raw=true" title="скачать" /></a>
 <!-- End of banner code -->   
+
+
+ # [rutube КАНАЛ ](https://rutube.ru/channel/78497880/)
+ # ОПИСАНИЕ НА САЙТЕ  [ОФМЦИАЛЬНЫЙ САЙТ РЕГИСТРАЦИЯ](https://tgninja.com?p=8121)
+ # WHATSAPP  [написать мне](https://wa.me/79511193576)
+ # TELEGRAM  [Группа в Telegram](https://t.me/TgNinjass)
+ # ЧИТАТЬ О ПРОГРАММЕ [О ОБЛАЧНОЙ ПРОГРАММЕ TgNinja](https://tgninjas.tilda.ws/)
+ # ПРИЛОЖЕНИЕ APK TgNinja [ДЛЯ ПЛАНШЕТОВ И ANDROID](https://disk.yandex.ru/d/CYJDu8Ug4q8ElQ)
+ # СКАЧАТЬ ВИДЕОУРОКИ ПО НАСТРОЙКЕ ПРОГРАММЫ [ВИДЕО СКАЧАТЬ ] https://disk.yandex.ru/d/YkKg0-zVTpuEWg
