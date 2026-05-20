@@ -37,4 +37,5 @@
  
 - ПРИЛОЖЕНИЕ APK TgNinja [ДЛЯ ПЛАНШЕТОВ И ANDROID](https://disk.yandex.ru/d/CYJDu8Ug4q8ElQ)
  
-- СКАЧАТЬ ВИДЕОУРОКИ ПО НАСТРОЙКЕ ПРОГРАММЫ [ВИДЕО СКАЧАТЬ ] (https://disk.yandex.ru/d/YkKg0-zVTpuEWg)
+- СКАЧАТЬ ВИДЕОУРОКИ ПО НАСТРОЙКЕ[ВИДЕО СКАЧАТЬ](https://disk.yandex.ru/d/YkKg0-zVTpuEWg)
+
